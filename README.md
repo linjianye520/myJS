@@ -1,2 +1,2 @@
 # myJS
-hey man!
+hey haha!
